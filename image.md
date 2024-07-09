@@ -1,1 +1,1 @@
-![服务器](https://github.com/setity/setitytest/assets/163283893/a4aa34a9-046b-4ac6-94ba-c88a44a542f8)
+![1广告位_广告位管理](https://github.com/setity/setitytest/assets/163283893/8b1e65cd-d542-4ce9-8d1b-ce138a29da19)
